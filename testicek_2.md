@@ -1,1 +1,1 @@
-stick it up ur butthole
+stick it up ur asshole
